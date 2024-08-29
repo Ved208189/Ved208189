@@ -12,4 +12,8 @@ You can click the Preview link to take a look at your changes.
 --->
 I see it is good job .
 The words That I wrote is found after 4 months.
-git's common noun means verson cantrol is understand today
+git's common noun means verson cantrol is understand today .
+29.8.24
+यह मेरे लिए एक संस्मरण लेखन के लिए भी उपयोगी है ।
+This is usefull for writing as remmebrance.
+
