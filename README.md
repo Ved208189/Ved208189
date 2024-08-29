@@ -10,3 +10,6 @@
 Ved208189/Ved208189 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+I see it is good job .
+The words That I wrote is found after 4 months.
+git's common noun means verson cantrol is understand today
