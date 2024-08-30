@@ -16,4 +16,5 @@ git's common noun means verson cantrol is understand today .
 29.8.24
 यह मेरे लिए एक संस्मरण लेखन के लिए भी उपयोगी है ।
 This is usefull for writing as remmebrance.
+मैं यह विचार करता हूँ कि प्रत्येक व्यक्ति को यह निर्धारित करना चाहिए कि उसकी 
 
