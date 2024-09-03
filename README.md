@@ -21,5 +21,5 @@ This is usefull for writing as remmebrance.
 एक व्यक्ति बोल कर डिप्रेशन खतम करता है (आध्यात्मिक )
 एक दवा Elwell (10 ) डिप्रेशन की मेडिसिन है ।
 अतः यह कहना सही है कि आत्म ज्ञान भव रोग की औषधि है। 1.9.24 अतः सच्चे मैं" की परिश्रम एवं मनोयोग से खोज करनी चाहिए ।
-2.9.24 Google  ' ved------------ a 614  @ gmail.com का ... mishrav-------- P4@gmail.com(now84______14)(previously 80______53)
+2.9.24 Google  ' ved------------ a 61f^f  @ gmail.com का ... mishrav-------- P4@gmail.com(nowf^f+a4______14)(previously f^f+a0______5f+a)
 
