@@ -26,6 +26,6 @@ This is usefull for writing as remmebrance.
 1 I 1iv hyat म ]
 [1॥ log1 ५ 4३ Na3 ३ 1५ : "1१ 1४h yat 3३ Vid5५1१" U.4३. L" v1५1४ s5३ 4३ oop3३"
 Displayed ...Vedswaroop Mishra]
-[New In4४4४1१ gr1१3३ A/c"5२1५1४4४5३ a4३oop1१3३" (2४ (f^0 ) (f^f) ( f^ 0)9( f ^0)8 f^ 0@5२1५1४]
+[New In4४4४1१ gr1१3३ 1१/c"5२1५1४4४5३ a4३oop1१3३" (2४ (f^0 ) (f^f) ( f^ 0)9( f ^0)8 f^ 0@5२1५1४]
 Date :6.9.24(5३ 2४ 5४ for 1२3२3५2२ ved------ (f^ f+ f) (f^ z)(f^ f)@-----.--- but "error" somthing went wrong .
 so 5३2४5४ and 5३4१1१1३1५ 1४3४4४4५3२3२1५1४ for...)
