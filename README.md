@@ -36,4 +36,4 @@ I see first that सीखना आसान नहीं होता अत�
 दरअसल सुना है वास्को डि गामा चला था एक विशिष्ट द्वीप के खोज में परन्तु खोज किया अन्य विशिष्ट द्वीप ( देश ) की । 18. 7 . 2025
 just above code has been changed, Now that is (New verson ) is here ; (see after I Part of ॥ line :- )
 " 5२5२4४3३4५1५1१1३2३1५4३@2२3३1१2४3२.1३3५3३ "
-
+(Note :- for" the old"" this"८४......१४)
