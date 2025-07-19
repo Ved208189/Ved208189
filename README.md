@@ -37,3 +37,4 @@ I see first that सीखना आसान नहीं होता अत�
 just above code has been changed, Now that is (New verson ) is here ; (see after I Part of ॥ line :- )
 " 5२5२4४3३4५1५1१1३2३1५4३@2२3३1१2४3२.1३3५3३ "
 (Note :- for" the old"" this"८४......१४)
+2१3३4३ 1५3३1१2४3२ :-
