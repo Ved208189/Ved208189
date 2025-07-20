@@ -44,5 +44,8 @@ just above code has been changed, Now that is (New verson ) is here ; (see after
 5२3३ (f^3)+f^0 f^f f^f f^f)+f 0f+a ( f^3 )+ f^0@2२3३1१2४3२.1३3५3३§ 5२3३f^3+f^0f^ff^f (f^f)+f 0 f+f^0f^3)+f^0 @
 1१1४2३5५1१4५3३4३1१3३1३1१4३2४4५4३1१f^ (f+a) f^(f+a)§1१f^f f^(f+a)_____________________f^(f+a)f^3@
 for "the New"९७......२२
+this is also    "5२5२4४3३5१4५5१1२1५4३@2२3३1१2४3२.1३3५3३"§
+5२ffaf^3)+a __________af^(f+a)@
+
 
 
