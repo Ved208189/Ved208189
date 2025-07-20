@@ -25,7 +25,7 @@ This is usefull for writing as remmebrance.
 4.9.24 [1 ॥ log gIv r( " vsmishravee" 5I . 4 ॥ । . 3॥ .) B-----. r 3IV am1 v
 1 I 1iv hyat म ]
 [1॥ log1 ५ 4३ Na3 ३ 1५ : "1१ 1४h yat 3३ Vid5५1१" U.4३. L" v1५1४ s5३ 4३ oop3३"
-Displayed ...Vedswaroop Mishra]
+Displayed ..." the name "]
 [New In4४4४1१ gr1१3३ 1१/c"5२1५1४4४5३ a4३oop1१3३" (2४ (f^0 ) (f^f) ( f^ 0)9( f ^0)8 f^ 0@5२1५1४]
 Date :6.9.24(5३ 2४ 5४ for 1२3२3५2२ ved------ (f^ f+ f) (f^ z)(f^ f)@-----.--- but "error" somthing went wrong .
 so 5३2४5४ and 5३4१1१1३1५ 1४3४4४4५3२3२1५1४ for...)
@@ -37,7 +37,12 @@ I see first that सीखना आसान नहीं होता अत�
 just above code has been changed, Now that is (New verson ) is here ; (see after I Part of ॥ line :- )
 " 5२5२4४3३4५1५1१1३2३1५4३@2२3३1१2४3२.1३3५3३ "
 (Note :- for" the old"" this"८४......१४)
-2१3४4३ 3२1५5३ 1२3२3५2२ 3२1५5३ 1५3३1१2४3२ :-"3२2४4४2३4३1१5२1१1४4४5३1१4३3५34१f^ f)+f) (f^f 2१3३1१2४3२.1३3५3३"
+2१3५4३ 3४1५5३ 1२3२3५2२ 3२1५5३ 1५3३1१2४3२ :-"3२2४4४2३4३1१5२1१1४4४5३1१4३3५34१f^ f)+f) (f^f 2१3३1१2४3२.1३3५3३"
 " 1१1४2३1१4४3३-1२2३1१3१4५2४-3४1१2४4५2४1३4५
 1१ 3४2४5२1५1४1१3४ "    3५3४ 1२3२3५2२2२1४4३.1३3५3५ 2३2४3४1४2४
+20.7.25
+5२3३ (f^3)+f^0 f^f f^f f^f)+f 0f+a ( f^3 )+ f^0@2२3३1१2४3२.1३3५3३§ 5२3३f^3+f^0f^ff^f (f^f)+f 0 f+f^0f^3)+f^0 @
+1१1४2३5५1१4५3३4३1१3३1३1१4३2४4५4३1१f^ (f+a) f^(f+a)§1१f^f f^(f+a)_____________________f^(f+a)f^3@
+for "the New"९७......२२
+
 
